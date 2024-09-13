@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @Morkaaa
-- 👀 I’m interested in ... 
+- 👀 I’m interested in ... Something
 - 🌱 I’m currently learning ... Yes
-- 💞️ I’m looking to collaborate on ... 
+- 💞️ I’m looking to collaborate on ... Something else
 - 📫 How to reach me ... No
-- 😄 Pronouns: ... Yes
+- 😄 Pronouns: ... Yes but only one, sorry not sorry...
 - ⚡ Fun fact: ... Not yet
 
 <!---
